@@ -10,3 +10,7 @@ This page will tell you about the real past. You will get to know how Isreal-Pal
 I may work on it to add more about the Why behind all of this.
 
 Thank You.
+
+---
+
+# Access this page [here](https://sohaib-exe.github.io/History-of-Palestine/).
